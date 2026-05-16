@@ -1,4 +1,4 @@
-# 
+# Chrome Remote Desktop for PC | Chrome Remote Desktop for Windows automatic Plugin: custom-branding & clipboard-sync offers the most advanced Chrome Remote Desktop for PC | Chrome
 
 
 
